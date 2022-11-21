@@ -6,5 +6,10 @@ Itzy is a 5-member girl group under JYP Entertainment. They consists of Yeji, Li
 
 **Members Profile**
 Yeji 
+*Position: Leader, Main Dancer, Lead Vocalist, Sub Rapper
+*Birthday: May 26, 2000
+
+Lia
+
 
 
