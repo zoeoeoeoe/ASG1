@@ -14,5 +14,16 @@ Lia
 * Position: Main Vocalist, Sub Rapper
 * Birthday: July 21, 2000
 
+Ryujin
+* Position: Main Rapper, Lead Dancer, Sub Vocalist, Center
+* Birthday: April 17, 2001
+
+Chaeryoung
+* Position: Main Dancer, Sub Vocalist, Sub Rapper
+* Birthday: June 5, 2001
+
+Yuna
+* Position: Lead Rapper, Lead Dancer, Sub Vocalist, Visual, Maknae
+* Birthday: December 9, 2003
 
 
